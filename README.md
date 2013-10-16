@@ -1,1 +1,1 @@
-# A side project on weekend
+# A side project on weekends
